@@ -1,0 +1,1 @@
+# hacks-ai_VserossiiskiyChampionat-AGU
